@@ -51,6 +51,8 @@ Sun, Jack
 Li, Jiwen
 Fan, Xinsong (Robert)
 
+Madjus, Errol
+
 Huynh, Brianna
  
 Huynh, Amanda
